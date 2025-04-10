@@ -1,3 +1,3 @@
 ![](https://files.catbox.moe/dvdewu.gif)
-wip
+dni 15>, sissys, & pro censorship + pro harassment
 ![](https://files.catbox.moe/zdp86r.gif)
