@@ -1,5 +1,3 @@
 ![](https://files.catbox.moe/dvdewu.gif)
-dnf : 15>, pro censorship + pro harassment, you declaw '97 dude into some innocent shy loser, emphasis on pro-censorship postal fans (do you even hear yourself...)
-
-iwc unless ur my bff. i dont like sharing my interests. i hide freely. i dont like most people + easily irritated
+dnf : 15>, pro censorship + pro harassment, you think '97 dude is some innocent loser, emphasis on pro-censorship postal fans (do you even hear yourself.?? did you play the games ??)
 ![](https://files.catbox.moe/zdp86r.gif)
