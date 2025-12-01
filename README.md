@@ -2,6 +2,6 @@
 
 <sub>check main (@dogfashiondisco) for byf</sub>
 
-<sub>dnf if u have pro harassment + pro censorship ideology *especially* applies to other postal fans... + you hate dudecest</sub>
+<sub>dnf if ur pro harassment/censorship & *especially* applies to other postal fans... + you hate dudecest</sub>
 
 ![](https://files.catbox.moe/zdp86r.gif)
