@@ -1,1 +1,1 @@
-<sub>check main (@dogfashiondisco). ill make this look nice.. eventually. currently emotionally flat dont expect good reps</sub>
+<sub>check main (@dogfashiondisco). ill make this look nice.. eventually. currently flat dont expect good reps</sub>
